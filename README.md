@@ -1,2 +1,0 @@
-# kwha.github.io
-Pages
